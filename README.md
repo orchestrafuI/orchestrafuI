@@ -1,4 +1,6 @@
-![c](https://github.com/user-attachments/assets/bb041b75-418a-4879-9361-0fb4a5f4f971)
+
+![f295dd638c6d22e2573d35c49de4c2d7](https://github.com/user-attachments/assets/ad167fa4-3565-40b2-a328-a35023616e42)
+
 </p>
 (I CANT FUCKING RECENTER THIS. PLEASE WHISPER ME IF U KNOW THE CODE TO RECENTER. BECAUSE ITS NOT WORKING FOR ME.)
 <div align="center"
